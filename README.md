@@ -35,8 +35,3 @@ To build a **scalable and robust AI-driven platform** that enhances the academic
 
 **🚀 Want to collaborate or learn more?** 🔥  
 📧 **juan.navarrom97@gmail.com** | 🔗 **https://www.linkedin.com/in/juan-navarro-mu%C3%B1oz-868b95322/**  
-
----
-
-👉 **Ahora solo necesitas subir esto como README.md en tu repo público.**  
-💡 **Dime si quieres hacer algún cambio o si pasamos a LinkedIn después de esto.** 🚀🔥
