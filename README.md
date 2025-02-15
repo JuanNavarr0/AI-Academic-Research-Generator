@@ -34,7 +34,7 @@ To build a **scalable and robust AI-driven platform** that enhances the academic
 ---
 
 **🚀 Want to collaborate or learn more?** 🔥  
-📧 **[Your Email]** | 🔗 **[Your LinkedIn]**  
+📧 **juan.navarrom97@gmail.com** | 🔗 **https://www.linkedin.com/in/juan-navarro-mu%C3%B1oz-868b95322/**  
 
 ---
 
